@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @venranbrewt90
+- 👀 I’m interested in ... exploring this New aged tech!🛫
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...971.718.4139/
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+
+<!---
+venranbrewt90/venranbrewt90 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+& thank you ![Uploading NITRO_N62_03082024_203236_020.jpg…]()
